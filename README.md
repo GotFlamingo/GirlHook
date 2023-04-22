@@ -1,5 +1,5 @@
-# 🐖GirlHook
-🔥you can use girlhook for discord webhooks. where you can spam or rename the webhook or delete the webhook🧸
+# 🔥GirlHook🔥
+🤑you can use girlhook for discord webhooks. where you can spam or rename the webhook or delete the webhook🧸
 🔑🔒
 Please join this discord server for free tools https://discord.gg/vh3pcdmswX
 
